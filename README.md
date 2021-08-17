@@ -1,0 +1,4 @@
+- 👋 Hi, I’m Nithish kumar BCA.,
+- 👀 I’m interested in Developing Programs
+- 🌱 I’m currently pursuing my Master Degree(MCA)
+- 📫 nithishkumaru182005@gmail.com
